@@ -1,7 +1,8 @@
 # A Tale of Two Cakes
 
 
-[Image: https://quip.com/-/blob/BSLAAAgurJT/AJHNqxrakjCeQFjwT8vvlA]
+[](https://quip.com/-/blob/BSLAAAgurJT/AJHNqxrakjCeQFjwT8vvlA)
+
 I noticed something interesting in my newsfeed history today. 
 
 A year ago, I had shared an article from [Yahoo! and Good Morning America about a family which had ordered a cake for their daughter who was graduating from college, but the baker had gotten the instructions wrong](https://gma.yahoo.com/blogs/abc-blogs/bakers-graduation-cake-mix-ends-purr-fect-mistake-002549970.html). The mother asked for the top of the cake to include a photo of her daughter, and if the cake decorator could “draw a cap on the top of her head.” But, the person taking the order heard *cat*, not cap, and that's how it turned out: with a cat drawn on top of the photo.
